@@ -1,0 +1,1 @@
+# Peta-Sebaran-Potensi-Ekowisata-Di-Resor-Tayawi-SPTN-Wilayah-I-Weda-Thn-2025
